@@ -186,7 +186,7 @@ julianamaria304@gmail.com
 
 🐙 **GitHub**
 
-https://github.com/juliflorezm
+https://github.com/julianaflorezm
 
 ---
 
